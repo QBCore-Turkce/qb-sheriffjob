@@ -1,6 +1,6 @@
 -  Hi, I’m @james12007
 - my discord tag ᒎα爪ЄƧ#4411
-- you can contact me through this link discord.gg/indianrp
+- you can contact me through this link discord.gg/newmoonrp
 - 👀 I’m interested in fivem developing and also vehicle developing
 - I’m currently learning lua
 
